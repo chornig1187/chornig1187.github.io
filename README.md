@@ -1,1 +1,0 @@
-# chornig1187.github.io
